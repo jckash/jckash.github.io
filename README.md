@@ -1,2 +1,0 @@
-# jckash.github.io
-Portfolio
